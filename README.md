@@ -1,1 +1,1 @@
-berdu30869@gmail.com
+borentalisha@gmail.com
